@@ -1,3 +1,1 @@
-## БЛОЕ СХЕМА
-
-![png](C:\Users\mamae\OneDrive\Рабочий стол)
+![](https://disk.yandex.ru/i/sbvVh3iTDGQ8jg)
